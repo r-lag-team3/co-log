@@ -7,6 +7,6 @@
 
 강동우: https://www.notion.so/Daily-237b4411a295801c9460d93aa62f5f65?source=copy_link
 
-김철현: 
+김철현: https://www.notion.so/238ba7a9646f8088a01ce6cb9be90406?source=copy_link
 
 조민정: 
