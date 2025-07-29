@@ -9,4 +9,4 @@
 
 김철현: https://www.notion.so/238ba7a9646f8088a01ce6cb9be90406?source=copy_link
 
-조민정: 
+조민정: https://www.notion.so/Daily-23f6d8d49ba0804fa0c8d6824407abe1?source=copy_link
